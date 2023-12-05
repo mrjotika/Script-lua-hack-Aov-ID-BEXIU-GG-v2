@@ -2,12 +2,10 @@
 
 Hack map Aov Indonesia 64bit
 100% safe anti-ban
-Guide video here https://is.gd/ibexiu
-
 
 
 enjoy 
-details guide here https://is.gd/ibexiu
+details video guide here https://is.gd/ibexiu
 ```
 https://is.gd/ibexiu
 ```
